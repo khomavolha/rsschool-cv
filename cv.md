@@ -5,7 +5,7 @@
   
 *Minsk, Belarus*  
 **e-mail:** *herdadevierhd@gmail.com*  
-**telegram:** *@ccfti*  
+**telegram:** *@ccfti (priority)*  
 **phone number:** *+375(29)8xx-0x-9x :)
 
 ### About me  
