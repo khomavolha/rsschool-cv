@@ -1,2 +1,2 @@
 # rsschool-cv
-init: start rolling scopes school
+https://khomavolha.github.io/rsschool-cv/cv
